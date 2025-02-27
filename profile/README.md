@@ -1,6 +1,7 @@
 # Korvato Review: Is This AI Trading Software Worth Your Money?
 
 ---
+![Korvato Review](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcRVtVYnTtzTxBcYMVn7L0MRvDkhnQ-Vvo9JdycIBUawHYC1YyW2e3ohcAY&s=10)
 
 ## Introduction: My First Brush with Korvato
 
